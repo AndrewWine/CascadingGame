@@ -1,2 +1,0 @@
-
-Thể loại: Puzzle game
